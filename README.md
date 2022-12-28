@@ -10,6 +10,8 @@ Và trên thị trường nơi quy tụ Fujie, Sharp, Electrolux, Xiaomi, Electr
 
 Samsung là thương hiệu nổi tiếng hàng đầu tại Hàn Quốc với nhiều sản phẩm công nghệ điện tử như: Điện thoại di động, Tivi, Tủ lạnh, Điều hòa, Máy tính... và mới nhất là máy hút ẩm Samsung. Để mang đến một không gian sống tiện nghi, Samsung đã phát triển model máy hút ẩm với nhiều tính năng tuyệt vời.
 
+![máy hút ẩm chính hãng](https://raw.githubusercontent.com/mayhutam/may-hut-am-chinh-hang/main/may-hut-am-3-1.jpg)
+
 Thiết kế thời trang và sang trọng của máy hút ẩm Samsung tạo nên không gian sống hoàn hảo. Thiết kế tổng thể máy mượt mà nhưng mỏng nhẹ, lớp vỏ được làm bằng màu trắng tinh tế tạo nên sự trang nhã, sẽ mang đến điểm nhấn khó quên dù đặt ở bất kỳ không gian phòng khách nào từ hiện đại đến tân cổ điển.
 
 +) Tham khảo chi tiết bài viết tại: 
@@ -23,6 +25,8 @@ Máy hút ẩm Coway AD 1615A là dòng máy hút ẩm Coway giá rẻ duy nhấ
 +) Xem ngay máy hút ẩm tại:
 
 Điểm mạnh của máy hút ẩm Coway AD 1615A nằm ở mặt tiền thiết kế cuốn hút tạo nét riêng cho từng không gian phòng khách, nằm ở tầng trệt với ngoại thất màu trắng tinh tế, sang trọng. Đặc biệt là bảng điều khiển cảm ứng và màn hình LCD trực quan, chất lượng cao toát lên vẻ hiện đại.
+
+![máy hút ẩm cao cấp Hàn Quốc](https://raw.githubusercontent.com/mayhutam/may-hut-am-chinh-hang/main/may-hut-am-3-2.jpg)
 
 Máy hút ẩm Coway AD 1615A còn lọc không khí rất hiệu quả, sử dụng hệ thống lọc kép tích hợp màng lọc thô và màng lọc than hoạt tính, giúp đưa không khí sạch và trong lành vào, hỗ trợ giảm chấn. Sự phát triển của vi khuẩn giúp ngăn ngừa các bệnh về đường hô hấp.
 
@@ -39,6 +43,8 @@ Tiếp theo là máy hút ẩm Glucklich GL25-D029A, với công suất hút ẩ
 ## 4. Ưu điểm của máy hút ẩm Electrolux
 
 Dòng [**máy hút ẩm Electrolux**](https://giaiphaphutam.com/tin-tuc/may-hut-am-electrolux-830.html) của Thụy Điển được trang bị cảm biến nhiệt độ và độ ẩm điện tử, dễ dàng điều chỉnh khả năng hút ẩm tự động theo điều kiện phòng, giúp người dùng kiểm soát hiệu quả chất lượng không khí. Phòng tránh hiệu quả.
+
+![máy hút ẩm thụy điển](https://raw.githubusercontent.com/mayhutam/may-hut-am-chinh-hang/main/may-hut-am-3-3.jpg)
 
 Khả năng kiểm soát độ ẩm mạnh mẽ của máy hút ẩm Electrolux có thể dễ dàng cân bằng dải độ ẩm rộng 40-80%RH, đa chức năng sấy khô quần áo, rã đông, lọc không khí, khử mùi, diệt khuẩn giúp tiết kiệm không gian. Sống trong lành và mát mẻ, bảo vệ toàn diện sức khỏe người dùng.
 
